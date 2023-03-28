@@ -1,4 +1,12 @@
-### Hi there 👋
+### Memoar Tentang Rumah is a local clothing brand based in Indonesia. Our story begins through a conversation at a Coffee Shop in Sintang at the end of 2022.
+
+Our aesthetics are designed to Record the Journey.
+Memoar Tentang Rumah are heavily influenced by Local Stories,
+National News, Journeys and various interesting things about Indonesia.Memoar Tentang Rumah is a local clothing brand based in Indonesia. Our story begins through a conversation at a Coffee Shop in Sintang at the end of 2022.
+
+Our aesthetics are designed to Record the Journey.
+Memoar Tentang Rumah are heavily influenced by Local Stories,
+National News, Journeys and various interesting things about Indonesia.
 
 <!--
 **memoartentangrumah/memoartentangrumah** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
